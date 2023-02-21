@@ -1,1 +1,0 @@
-# Jea-Image-Unit-3-Project-Starter-Code
